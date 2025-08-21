@@ -1,6 +1,5 @@
-## 𓊆　　SOKA \ EVAN   |  ANY PRONOUNS 　　𓊇
-![IMG_3412](https://github.com/user-attachments/assets/a507fa27-d2c1-4fb7-8d92-e8c72440b4c2)
 ## 𓊆　　WHISPER TO INTERACT　　&　　INSPO OK ! 　　𓊇
+![IMG_3412](https://github.com/user-attachments/assets/a507fa27-d2c1-4fb7-8d92-e8c72440b4c2)
 <!--
 **Sokacola/SOKACOLA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
